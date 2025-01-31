@@ -1,4 +1,4 @@
 ## Hi there 👋
 
-HELLO NEYBORUN HİKAYESİ ZAMANLA YIPRANAN EHR ANINPFNRFG
+heyy buddy
 -->
